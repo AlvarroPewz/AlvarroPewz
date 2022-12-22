@@ -1,16 +1,15 @@
-### Hi there 👋
+### Hi there
 
-<!--
-**AlvarroPewz/AlvarroPewz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+boring thingz here
 
-Here are some ideas to get you started:
+Here are some f*cked Work
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🤨 I’m currently working on [Psych Engine Android](https://github.com/AlvarroPewz/FNF-PsychEngine-Android-Port), tryin' to fix actions so download on releases
+- 🖕 I’m currently learning exams
+- 🐷 I’m looking to collaborate on a Friday Night yeah,
+- 🤮 I’m looking for help with FNF Android Port
+- 💩 Ask me about FNF and 0% chance that I answer it
+- 🎤 How to reach me: ask ur mom
+- 🔦  Pronouns: idk what it is
+- 🔪 Fun fact: I want to leak your house in google maps
+
