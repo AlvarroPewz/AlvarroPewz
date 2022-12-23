@@ -2,7 +2,7 @@
 
 ### Here are some freakin' thing
 
-- 🤨  I’m currently working on [Psych Engine Android](https://github.com/AlvarroPewz/FNF-PsychEngine-Android-Port)
+- 🤨  I’m currently working on [Psych Engine Android](https://github.com/AlvarroPewz/FNF-PsychEngine-Android-Port) (not really)
 - 🖕  I’m currently learning exams
 - 🐷  I’m needs food
 - 🤮  I’m looking for help with FNF Android Port
