@@ -12,4 +12,4 @@
 - 🔪  Fun fact: I want to leak your house in google maps
 - 💰  Free Robux: [Click Here!](https://youtu.be/watch?v=dQw4w9WgXcQ/)
 
-[don't ever touch this shit💩](https://youtube.com/w/dQw4w9WgXcQ)
+[💩](https://youtube.com/w/dQw4w9WgXcQ) <-- Dont ever touch that shit
