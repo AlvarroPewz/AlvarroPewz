@@ -6,7 +6,7 @@
 - 🖕  I’m currently learning exams
 - 🐷  I need food
 - 🤮  I’m looking for help with FNF Android Port
-- 💩  Ask me about FNF and 0% chance that I answer it
+- 💣  Ask me about FNF and 0% chance that I answer it
 - 🤢  How to reach me: ask ur mom
 - 💀  Pronouns: idk
 - 🔪  Fun fact: I want to leak your house in google maps
