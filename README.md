@@ -2,7 +2,7 @@
 
 ### Here are some freakin' thing
 
-- 🤨  I’m currently working on [CutBorr: Sing Along](https://Never Gonna Give You Up) (not really)
+- 🤨  I’m currently working on [CutBorr: Sing Along](https://get-dunked-on) (not really)
 - 🖕  I’m currently learning exams
 - 🐷  I need food
 - 🤮  I’m looking for help with FNF Android Port
