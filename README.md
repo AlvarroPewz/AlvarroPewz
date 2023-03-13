@@ -1,4 +1,4 @@
-## Hey YOOUU!!, I'm NK, and I was the Verified person in the world😍💪 [😎🤑]
+## Hey YOOUU!!, I'm NK.
 
 ### Here are some freakin' thing
 
