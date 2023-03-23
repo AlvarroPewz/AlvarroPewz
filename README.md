@@ -3,7 +3,7 @@
 ### Here are some freakin' thing
 
 - 🤨  I’m currently working on [CutBorr: Sing Along](https://never.gonna.give.you.up) (not really)
-- 🖕  I’m currently learning exams
+- 🖕  I’m currently learning math
 - 🐷  I need food
 - 🤮  I’m looking for help with FNF Android Port
 - 💣  Ask me about FNF and 0% chance that I answer it
