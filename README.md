@@ -6,10 +6,10 @@
 - 🖕  I’m currently learning math
 - 🐷  I need food
 - 🤮  I’m looking for help with ur mom
-- 💣  Ask me about anything and 0% chance that I answer it
+- 💣  Ask me about anything and there's a 0% chance that I will answer it
 - 🤢  How to reach me: ask ur mom
-- 💀  Pronouns: He/him/his
+- 💀  Pronouns: He/him
 - 🔪  Fun fact: I want to leak your house in google maps
-- 💰  Free Robux: [Click Here!](https://youtu.be/watch?v=dQw4w9WgXcQ/)
+- 💰  Free Money: [Click Here!](https://youtu.be/watch?v=dQw4w9WgXcQ/)
 
-[💩](https://youtube.com/w/dQw4w9WgXcQ) <-- touch that shit
+[💩](https://youtube.com/w/dQw4w9WgXcQ) <-- do NOT touch that shit
